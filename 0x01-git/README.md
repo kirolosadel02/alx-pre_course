@@ -1,1 +1,1 @@
-Yarab
+Yarab tany
